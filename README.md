@@ -29,7 +29,7 @@ I love exploring data, finding patterns, and turning numbers into insights that 
 
 
 ### 📫 Let's Connect!
-📧 [Email] 05.Sujithra@gmail.com
+📧 [Email] sujilearns1@gmail.com
 
 ---
 
